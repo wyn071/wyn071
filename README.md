@@ -1,1 +1,1 @@
-<img width="1807" height="636" alt="lieanks" src="https://github.com/user-attachments/assets/43ce42c5-d000-417e-8b27-52418ff0ab7b" />
+<img width="1826" height="740" alt="image" src="https://github.com/user-attachments/assets/092e4686-9945-4399-abf6-7e24b92b3703" />
